@@ -4,4 +4,4 @@ u know why in the last voicenote to u, i said things ... some interesting things
 
 https://www.youtube.com/watch?v=emVUkzjykro see the ice king goes after them bc theyre happy ... ive had so many people be pissed off/be envious at/towards me for no other reason than the fact that im a happy person, i laugh, i joke around, people like me and that pisses some other people off -- so what, haters gonna hate
 
-pick any three digit number, thats how many millions of $$$ we're going to sue penn for, u choose the number
+pick any three digit number, thats how many millions of $$$ we're going to sue penn for, u choose the number [im sure theyre hoping/thinking i'll play nice bc im muslim, def not, def going to sue](https://www.tiktok.com/@islamiyaah/video/7543761008792276238)
